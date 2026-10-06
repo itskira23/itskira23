@@ -6,12 +6,12 @@ This account is dedicated to PonyTown!☆
 ## General info
 I usually hop on when I have free time and feel like socializing online. 
 I’m quite active, so I tend to reply quickly! While I’m a bit shy and don't often initiate conversations, I love talking to new people, so please feel free to say hi first♡
-__________________________________________
+
 <img width="30" height="30" alt="cross-mark-x (1)" src="https://github.com/user-attachments/assets/2a907611-8740-49d1-9f40-93cd23c7b00a" />
 
 ## Note:
 I'm open to 18+ themes but will not tolerate sexual approaches
-__________________________________________
+
 ## Interests:
 Gaming, K-pop, Anime, Drawing, Furries, Traveling, Languages, Psychology, Deep/Casual chats, Animals and more!
 
@@ -22,7 +22,7 @@ Gaming, K-pop, Anime, Drawing, Furries, Traveling, Languages, Psychology, Deep/C
 <img width="75" height="92" alt="pony-town-Diana💜  OC -dance-fly-hearts-blinking-padded-1x" src="https://github.com/user-attachments/assets/e494188b-3f56-4691-adfb-92eca6409bb2" />
 
 ^ Diana
-__________________________________________
+
 ## Find me:
 You'll often find me around the map wearing skins of my OCs (I love making them), especially near the Cafeteria or Campfire. "Confetti" is my main, but I love switching skins often! :P
 
