@@ -2,11 +2,11 @@
 This account is dedicated to PonyTown!☆
 
 I usually hop on when I have free time and feel like socializing online. I’m quite active, so I tend to reply quickly! While I’m a bit shy and don't often initiate conversations, I love talking to new people, so please feel free to say hi first♡
------
+__________________________________________
 <img width="30" height="30" alt="cross-mark-x (1)" src="https://github.com/user-attachments/assets/2a907611-8740-49d1-9f40-93cd23c7b00a" />
 
 Note: I'm open to 18+ themes but will not tolerate sexual approaches
------
+__________________________________________
 ​Interests: Gaming, K-pop, Anime, Drawing, Furries, Traveling, Languages, Psychology, Deep/Casual chats, Animals
 
 You will often find me with my OCs skins (I love to make those), Confetti is the one I use the most, but I love to change skins often :P
