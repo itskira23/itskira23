@@ -28,6 +28,6 @@ You'll often find me around the map wearing skins of my OCs (I love making them)
 
 <img width="633" height="437" alt="Screenshot_20261006_160701_Pony Town" src="https://github.com/user-attachments/assets/b9305d5c-a62d-4420-96b6-2230417bc7a8" />
 
-^ This is Confetti night version, I also have a day version of him!
+^ This is Confetti's night version, I also have a day version of him!
 
 
