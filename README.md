@@ -20,7 +20,7 @@ __________________________________________
 
 ^ Diana
 __________________________________________
-You will often find me in my OCs skins (I love to make those) all around the map and especially near Cafeteria or Campfire. "Confetti" is the one I use the most, but I love to change skins often :P
+You'll often find me around the map wearing skins of my OCs (I love making them), especially near the Cafeteria or Campfire. "Confetti" is my main, but I love switching skins often! :P
 
 <img width="57" height="70" alt="pony-town-confetto🌈 (night)  OC -dance-1-a-blinking-padded-1x (1)" src="https://github.com/user-attachments/assets/2598e0e4-c3e0-44e8-b6a0-f70692f9b7cf" />
 
