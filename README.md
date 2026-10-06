@@ -3,7 +3,7 @@ This account is dedicated to PonyTown!☆
 
 I usually hop on when I have free time and feel like socializing online. I’m quite active, so I tend to reply quickly! While I’m a bit shy and don't often initiate conversations, I love talking to new people, so please feel free to say hi first♡
 
-<img width="200" height="200" alt="cross-mark-x (1)" src="https://github.com/user-attachments/assets/2a907611-8740-49d1-9f40-93cd23c7b00a" />
+<img width="50" height="50" alt="cross-mark-x (1)" src="https://github.com/user-attachments/assets/2a907611-8740-49d1-9f40-93cd23c7b00a" />
 Note: I'm open to 18+ themes but will not tolerate sexual approaches
 
 ​Interests: Gaming, K-pop, Anime, Drawing, Furries, Traveling, Languages, Psychology, Deep/Casual chats, Animals
