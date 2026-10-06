@@ -19,7 +19,7 @@ Gaming, K-pop, Anime, Drawing, Furries, Traveling, Languages, Psychology, Deep/C
 
 ^ One of my drawings! This is my OC Diana, she’s also my GitHub pfp. Since she was my very first OC, I’m super attached to her! She’s also my Dutch Angel Dragon fursona
 
-<img width="384" height="456" alt="pony-town-Diana ♡  OC -dance-fly-hearts-blinking-padded-6x" src="https://github.com/user-attachments/assets/309bcfc7-2a52-497f-80cf-02e6f023609c" />
+<img width="204" height="240" alt="pony-town-Diana ♡  OC -dance-fly-hearts-blinking-padded-3x" src="https://github.com/user-attachments/assets/23c37005-c59f-44bd-8d4f-39e399e7f998" />
 
 ^ Diana
 
