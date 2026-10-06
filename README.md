@@ -8,6 +8,9 @@ __________________________________________
 Note: I'm open to 18+ themes but will not tolerate sexual approaches
 __________________________________________
 ​Interests: Gaming, K-pop, Anime, Drawing, Furries, Traveling, Languages, Psychology, Deep/Casual chats, Animals
+<img width="660" height="362" alt="PSX_20210327_200311" src="https://github.com/user-attachments/assets/2b1d5582-0230-43a3-b6e3-b010ca4e6dca" />
+
+^ One of my drawings! It's my OC "Diana", you can also spot her on my profile picture 
 
 You will often find me with my OCs skins (I love to make those), Confetti is the one I use the most, but I love to change skins often :P
 <img width="57" height="70" alt="pony-town-confetto🌈 (night)  OC -dance-1-a-blinking-padded-1x (1)" src="https://github.com/user-attachments/assets/2598e0e4-c3e0-44e8-b6a0-f70692f9b7cf" />
