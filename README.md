@@ -2,7 +2,7 @@
 This account is dedicated to PonyTown!☆
 
 <img width="208" height="69" alt="dal8ew9-8ae80813-4c80-43bb-a468-d57544b74590" src="https://github.com/user-attachments/assets/6640d61f-3882-4ccd-b64a-052754a38082" />
-__________________________________________
+
 ## General info
 I usually hop on when I have free time and feel like socializing online. 
 I’m quite active, so I tend to reply quickly! While I’m a bit shy and don't often initiate conversations, I love talking to new people, so please feel free to say hi first♡
