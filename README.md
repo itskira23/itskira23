@@ -11,7 +11,8 @@ Note: I'm open to 18+ themes but will not tolerate sexual approaches
 __________________________________________
 ​Interests: Gaming, K-pop, Anime, Drawing, Furries, Traveling, Languages, Psychology, Deep/Casual chats, Animals and more!
 
-<img width="660" height="362" alt="Senza titolo 51 (1)" src="https://github.com/user-attachments/assets/1b7e92cb-3b8c-4ed6-a7b4-c4c512c61b83" />
+<img width="660" height="362" alt="PSX_20210327_200311" src="https://github.com/user-attachments/assets/45a83744-cc5f-4c6f-a205-2ffe45bcbaee" />
+
 
 ^ One of my drawings! It's my OC "Diana", you can also spot her on my profile picture as a PT skin
 __________________________________________
