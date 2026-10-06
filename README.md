@@ -26,7 +26,7 @@ Gaming, K-pop, Anime, Drawing, Furries, Traveling, Languages, Psychology, Deep/C
 ## Find me:
 You'll often find me around the map wearing skins of my OCs (I love making them), especially near the Cafeteria or Campfire. "Confetti" is my main, but I love switching skins often! :P
 
-<img width="57" height="70" alt="pony-town-confetto🌈 (night)  OC -dance-1-a-blinking-padded-1x (1)" src="https://github.com/user-attachments/assets/2598e0e4-c3e0-44e8-b6a0-f70692f9b7cf" />
+<img width="633" height="437" alt="Screenshot_20261006_160701_Pony Town" src="https://github.com/user-attachments/assets/b9305d5c-a62d-4420-96b6-2230417bc7a8" />
 
 ^ This is Confetti night version, I also have a day version of him!
 
