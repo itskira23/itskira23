@@ -8,7 +8,7 @@ I usually hop on when I have free time and feel like socializing online.
 I’m quite active, so I tend to reply quickly! While I’m a bit shy and don't often initiate conversations, I love talking to new people, so please feel free to say hi first♡
 
 ## Note:
-<img width="30" height="30" alt="cross-mark-x (1)" src="https://github.com/user-attachments/assets/2a907611-8740-49d1-9f40-93cd23c7b00a" />
+<img width="20" height="20" alt="cross-mark-x (1)" src="https://github.com/user-attachments/assets/2a907611-8740-49d1-9f40-93cd23c7b00a" />
 I'm open to 18+ themes but will not tolerate sexual approaches
 
 
